@@ -1,0 +1,2 @@
+# RansomWare-DimzWeb
+Hanya xondom
